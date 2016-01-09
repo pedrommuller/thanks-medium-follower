@@ -1,1 +1,2 @@
-# thanks-medium-follower
+# thanks to new medium follower (in twitter)
+
